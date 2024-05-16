@@ -12,4 +12,4 @@ larissageisele@gmail.com
 
 @_lariferreiraa__
 
-![descrição do GIF]([(https://media1.tenor.com/m/vBhraFQlxfAAAAAd/wink-black.gif)])
+![descrição do GIF](https://media1.tenor.com/m/vBhraFQlxfAAAAAd/wink-black.gif)
